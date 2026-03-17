@@ -25,5 +25,3 @@ Contribuir a la comunidad académica y tecnológica mediante la simplificación 
 👩‍💻 Autora
 
 Mireya Julissa Leyva Álvarez
-
-Si quieres algo más “impactante” (tipo portafolio
